@@ -1,0 +1,4 @@
+- Nicolas Francisco -
+- 21y -
+- Análise e Desenvolvimento de Sistemas-
+- Full Stack Developer -
